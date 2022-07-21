@@ -11,7 +11,8 @@ morakotch@gmail.com
 ## My hometown
 Bangkok, Thailand
 
-## My favourite activites 
+## My favorite activities 
 * Hiking
 * Playing games
-* Watch HEARTROCKER's VDOs
+* Watching HEARTROCKER's VDOs
+* Watching BayRiffer's VDOs
