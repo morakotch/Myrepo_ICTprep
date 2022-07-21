@@ -7,3 +7,6 @@ Morakot Choetkiertikul
 
 ## Email
 morakotch@gmail.com
+
+## My hometown
+Bangkok, Thailand
